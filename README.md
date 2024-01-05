@@ -1,4 +1,4 @@
-# Hi, I'm Fabio (a.k.a Eneas)! 👋
+# Hi, I'm Fabio ! 👋
 
 
 ## 🛠 Skills
